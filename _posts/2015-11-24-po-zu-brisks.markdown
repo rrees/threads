@@ -9,9 +9,11 @@ categories: shoes uk
 
 [Po-Zu](http://po-zu.com) is a UK shoe designer who manufacturers their shoes in Portugal. Their Brisk sneaker comes in a variety of contrasting two-tone colours, I choose [black and green](http://po-zu.com/collections/mens/products/brisk-black-green).
 
+The shoes are cloth and therefore really suitable for dry weather. The sole is described as an Foot Mattress and they really are comfortable to walk in, even when brand new.
+
 ## Returns
 
-I initially ordered a size too small for me due to odd-sized feet and having to guess whether the sizing was generous or not (the sizes are exactly as advertised so one shoe fit and the other was a little cramped). The return process was pretty straight-forward with an email to get a return code (as well as a reservation for the right size) that you print out and attach to the original packaging.
+I initially ordered a size too small for me due to odd-sized feet and having to guess whether the sizing was generous or not (the sizes are accurate or perhaps slightly small so one shoe fit and the other was a little cramped). The return process was pretty straight-forward with an email to get a return code (as well as a reservation for the right size) that you print out and attach to the original packaging.
 
 From there I could use a Collect+ location to return the package. I received an email when the shoes arrived back and the replacements arrived promptly, just as the original order had.
 
